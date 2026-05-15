@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with rare nft mint bot | slippage-control + multi-chain-support, the #1 nft mint bot. Includes slippage-control and multi-chain-support for a faster and
 
 
 
